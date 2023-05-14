@@ -1,1 +1,1 @@
-📫<br>![](https://barryfam.io/text-image.png)
+📫<br>![](https://barryfam.io/cabi-gray.svg)
